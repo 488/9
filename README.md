@@ -3,4 +3,7 @@
 电子邮箱：royal888crown@hotmail.com
 <br>
 <br>
-皇家：+63 917 571 5006&nbsp;&nbsp; +63 917 571 5008
+皇家：+63 917 571 5006&nbsp;&nbsp; +63 917 571 5008<br>
+<br>
+<br>
+长城：+84 128 753 5590&nbsp;&nbsp;
